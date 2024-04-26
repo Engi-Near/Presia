@@ -1,1 +1,3 @@
-Welcome to Foof's little madness corner, I dont know how to do anything here so dont fucking ask
+WE ARE SO UP (We are so down)
+
+PRESIA SUCKS
